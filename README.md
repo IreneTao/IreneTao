@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @IreneTao
 - 👀 I’m interested in analytics
-- 💞️ I’m looking to collaborate on marketing project!
+- 💞️ I’m looking to collaborate on finance project!
 - 📫 How to reach me in the comment below
 
 <!---
